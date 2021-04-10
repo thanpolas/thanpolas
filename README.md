@@ -2,7 +2,7 @@
 
 I am Thanos, a passionate software engineer with entrepreneurial traits. For the past 10 years I have been creating and managing engineering teams on early stage startups, helping them grow from zero to ten.
 
-Lately, I've been focusing on gardening and growing vegetables and flowwers.
+Lately, I've been focusing on gardening and growing vegetables and flowers.
 
 ## Get In Touch
 
